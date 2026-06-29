@@ -1,4 +1,4 @@
-# 
+# Profesional arbitrage trading bot plugins for Mac OS | Último arbitrage trading bot plugins for PC Windows. Featuring API de intercambio descentralizado and comercio de futuros — optimized for maximum performance.
 
 
 
